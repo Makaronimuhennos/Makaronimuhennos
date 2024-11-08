@@ -2,7 +2,7 @@
 - 👀 I’m interested in all technical
 - 🌱 I’m currently learning coding, computers and drawing
 - 📫 How to reach me croistanti@gmail.com
-- 😄 Pronouns: she/they
+- 😄 Pronouns: They/Them
 - ⚡ Fun fact: there is nothing i dont own.
 
 <!---
